@@ -1,4 +1,4 @@
-### Hola soy Tomás 👋
+### Hola Tomás aqui, Soy un diseñador gráfico como base, me estoy expandiendo constantemente en el mundo TI 👋
 ![1630966699416](https://user-images.githubusercontent.com/85971544/182980203-80f37aa3-20e9-48a5-9e9e-9d68c0bf6b70.jpg)
 
 
